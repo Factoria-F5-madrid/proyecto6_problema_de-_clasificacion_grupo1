@@ -1,1 +1,0 @@
-# proyecto6_problema_de-_clasificacion_grupo1
